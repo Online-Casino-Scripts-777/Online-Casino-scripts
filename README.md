@@ -46,7 +46,7 @@ We are ready to help you create something **BIG**! Whether you're launching a ne
 - 🌍 **Website**: [www.online-casino-scripts.com](http://cuttly.click/d5fba)
 - 📧 **Contact Form**: [Reach Out Now](http://cuttly.click/32fts)
 ---
-![Online Casino Script](https://online-casino-scripts.com/images/blog/3N533CfhiPskTvQ_1720898530.png)
+![Online Casino Script](https://online-casino-scripts.com/images/items/2volejrejnmg/zXq0cQUKDoGjLdo_1721700339.webp)
 
 ## 🎲 About Us
 
